@@ -1,7 +1,6 @@
-# USDT Flasher Software
-This software allows you to flash USDT on any network
 
-# USDT-FLASHER-SOFTWARE
+
+# USDT FLASHER SOFTWARE
 This Software Allows User to Flash USDT on any USDT Network
 
 🤩🤩🤩🤩🤩🤩🤩🤩
@@ -26,12 +25,13 @@ This Software Allows User to Flash USDT on any USDT Network
   📱Android Mobile Flashing Apps
   
 
-📱🔠🔠🔠🔠🔠:- [CZARBIT]](https://t.me/czarbit)✅ 
+📱🔠🔠🔠🔠🔠:- [CZARBIT](https://t.me/czarbit)✅ 
+
 
 [ADMIN](https://t.me/czarbit) 
 
 
-  ☄️We have discounts prices for our  server files for:
+ #  ☄️We have discounts prices for our  server files for:
   
 📌2 weeks wallet stay
 
@@ -43,9 +43,12 @@ This Software Allows User to Flash USDT on any USDT Network
 
 📌6 Months wallet stay  
 
-📱 CZARBIT (https://t.me/czarbit)
-⬇️ (https://t.me/btc_flash_hub)PUBLIC CHANNEL (https://t.me/btc_flash_hub)
+📱 [CZARBIT](https://t.me/czarbit)
+
+⬇️ [PUBLIC CHANNEL](https://t.me/btc_flash_hub)
+
 🔄 [GROUP CHAT](https://t.me/btcflash_hub)
+
 ⚙️ [CHANNEL BOT](https://t.me/crypto_flashing_software_bot)
 
 [FLASHER BOT](https://t.me/crypto_flashing_software_bot)
